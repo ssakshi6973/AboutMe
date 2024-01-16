@@ -20,4 +20,4 @@ What You'll Find Here
 🤝 I'm open to collaboration and always excited to connect with fellow developers and enthusiasts. Feel free to reach out if you want to work together on something awesome.
 With 8+ years of experience, I'm interested in learning about your skills and interests. Let's chat and schedule a call for the same.
 
-Please feel to reach out at: ssakshisinghal697@gmail.com https://www.linkedin.com/in/sakshi-singhal-96aa47207
+Please feel to reach out at: ssakshisinghal697@gmail.com || https://www.linkedin.com/in/sakshisinghal697/ || https://main--aquamarine-haupia-68abea.netlify.app/
